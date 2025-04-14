@@ -1,4 +1,4 @@
-# Khushi Yadav
+
 # Khushi Yadav
 
 **Undergraduate Student | Electronics and Communication Engineering**  
